@@ -1,2 +1,2 @@
 # Musical
-Hamilton's story🎭
+🎭
